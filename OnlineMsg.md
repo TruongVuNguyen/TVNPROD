@@ -1,6 +1,4 @@
 ❍⊶⊷⊶⊷✶✶⊶⊷⊶⊷❍
-ỨNG DỤNG TVNPRO™ BẢN QUYỀN THUỘC VỀ TRƯỜNG VŨ NGUYỄN
-Mọi thắc mắc vui lòng liên hệ Zalo: 036.721.5005
+ỨNG DỤNG TVNPRO™ ~ BẢN QUYỀN THUỘC VỀ TRƯỜNG VŨ NGUYỄN
+Mọi thắc mắc xin vui lòng liên hệ Zalo: 036.721.5005
 ❍⊶⊷⊶⊷✶✶⊶⊷⊶⊷❍
-𝗦𝗼 𝗣𝗹𝗲𝗮𝘀𝗲 𝗗𝗼𝗻'𝘁 𝗨𝘀𝗲 𝗢𝘂𝗿 𝗦𝗲𝗿𝘃𝗲𝗿𝘀 𝗶𝗻 𝗶𝗹𝗹𝗲𝗴𝗮𝗹 𝗔𝗰𝘁𝗶𝘃𝗶𝘁𝘆 𝗧𝗼 𝗽𝗿𝗲𝘃𝗲𝗻𝘁 𝗦𝗲𝗿𝘃𝗲𝗿 𝗠𝗮𝗶𝗻𝘁𝗮𝗶𝗻𝗮𝗻𝗰𝗲
-𝗧𝗵𝗮𝗻𝗸 𝗬𝗼𝘂!
